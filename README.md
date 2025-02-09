@@ -12,3 +12,5 @@ if you experience any bugs... not my problem ig, i made this in like 3 days and 
 
 
 file: https://drive.google.com/file/d/1D6c09LdOmYEU8HeGGroqeh2VULF1HN04/view?usp=drive_link
+
+(oh yeah, i the corruption custom trees look bad. meh idk)
